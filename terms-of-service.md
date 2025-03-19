@@ -1,0 +1,21 @@
+# Terms of Service
+**Last Updated: [Insert Today’s Date]**
+
+Welcome to **Global Health Network TV**. By accessing our services, you agree to abide by these terms.
+
+1. **Acceptance of Terms**  
+   By using GHN TV, you accept and agree to comply with these Terms of Service.
+
+2. **User Responsibilities**  
+   You agree to use GHN TV lawfully and responsibly. 
+
+3. **Intellectual Property Rights**  
+   All content on GHN TV is protected under copyright laws.
+
+4. **Privacy Policy**  
+   Your data will be handled according to our [Privacy Policy](privacy-policy.md).
+
+5. **Changes to Terms**  
+   GHN TV reserves the right to modify these terms at any time.
+
+For more details, contact us at globalhealthnetworktv@gmail.com or contact the Director at daltonbontsi@gmail.com 
